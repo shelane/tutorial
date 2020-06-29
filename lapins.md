@@ -1,0 +1,1 @@
+A crossbreed between the Vans and Stella varieties, Lapins cherries can grow to up to one inch in size and are hardy, deep red in color, and quite sweet and flavorful. This type of sweet cherry ripens about two weeks after the Bing cherry and is only available for a short window of a few weeks. Grab them while you can.
