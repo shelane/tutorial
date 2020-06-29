@@ -1,0 +1,1 @@
+Lambert cherries are large with an even bright red color throughout. They are sweet enough to eat straight out of hand​ but they are also great for baking, as they maintain their texture when cooked. Lambert cherries are available for most of the summer, from mid-June to early August.
